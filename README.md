@@ -14,7 +14,7 @@ Fecha: 25/05/2023
 
 La hibridación de software y medios implica la fusión de diferentes elementos en una nueva entidad cultural. Es una la convergencia de diferentes formas de expresión y medios en un entorno digital. Implica la integración de elementos humanos y tecnológicos en nuevas formas de creatividad, sin dejar de heredar algo de los medios de los que convergue. 
 
-Estas nuevas expresiones son interactivas y, en los dos casos que voy a presentar, nos permiten la exploración de nuevas formas de creatividad artística y entrenimiento. Por un lado 
+Estas nuevas expresiones son interactivas y, en los dos casos que voy a presentar, nos permiten la exploración de nuevas formas de creatividad artística y entrenimiento. Por un lado conoceremos mejor el Dubler 2 de Vochlea, que nos aporta muy novedades muy interesantes en el mundo de la creación y edición musical. Así como también el fenómeno AI de Twitch llamado Neuro-Sama.
 
 
 
